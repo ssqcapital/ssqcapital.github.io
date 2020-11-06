@@ -1,1 +1,0 @@
-# ssqcapital.github.io
